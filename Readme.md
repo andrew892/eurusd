@@ -1,0 +1,3 @@
+# Playing with EUR-USD oscillations
+
+trying become rich...
